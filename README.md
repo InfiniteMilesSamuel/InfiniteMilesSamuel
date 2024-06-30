@@ -1,6 +1,6 @@
 # About Me
 
-Yo, i'm MilesSam. I'm a visionary dedicated to transforming our understanding of the universe and creating a future where everyone's wellbeing is prioritized. My mission is to eliminate the coercive systems of governments and economic controls that force people into unwellness through arbitrary laws and value judgments tied to money.
+Yo, I'm MilesSam. I'm a visionary dedicated to transforming our understanding of the universe and creating a future where everyone's wellbeing is prioritized. My mission is to eliminate the coercive systems of governments and economic controls that force people into unwellness through arbitrary laws and value judgments tied to money.
 
 I believe in developing advanced technologies like mind-reading sensors and compassionate AI, making them omnipresent and accessible to everyone. By integrating these technologies seamlessly into our lives, we can ensure that informed decisions are made without coercion, fostering a world of mutual respect and shared understanding.
 
